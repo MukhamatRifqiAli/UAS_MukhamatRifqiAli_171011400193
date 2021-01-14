@@ -1,1 +1,0 @@
-# UAS_MukhamatRifqiAli_171011400193
